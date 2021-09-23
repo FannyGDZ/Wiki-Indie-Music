@@ -1,6 +1,6 @@
 ## Qu'est-ce que la musique indépendante ?
 
-![Ibanez](https://zupimages.net/up/21/38/9pe0.jpg)
+![Ampli Ibanez](https://zupimages.net/up/21/38/9pe0.jpg)
 
 La plupart des gens pense que la musique *indé* (ou *indie*) est un genre à part entière car ils l’associent à des genres populaires comme le rock ou la pop indépendants. Or, contrairement à cette croyance populaire, l’*indie* n’est pas un genre musical en soi.
 
@@ -9,8 +9,20 @@ Ce sont des artistes qui se sont lancés dans cette discipline par passion, sans
 
 Ces artistes et musiciens n’appartiennent pas tous au même genre de musique et ne peuvent donc pas être mis dans le même panier. C’est pour cela que l’on ne peut pas considérer l’indé comme un genre à part entière. Au lieu de ça, il s’agit plutôt d’un terme regroupant de nombreux sous-genres, tels que l’indie rock ou l’indie pop, qui ne diffèrent en rien avec leur équivalent plus traditionnel. Seulement, ce sont des artistes indépendants qui sont aux commandes de leurs projets.
 
-Nombreux sont ceux qui décrivent l’indie comme étant une attitude. Les artistes y adhérant mettent toutes les chances de leur côté afin de pouvoir s’exprimer pleinement et purement au travers de leur art et ce, sans subir la moindre restriction d’une grande maison de disques. Ces dernières sont reconnues dans le monde entier et en place depuis de nombreuses années, telles que Universal ou Sony Music. Leur objectif est simple : cartonner commercialement.
+Nombreux sont ceux qui décrivent l’indie comme étant une attitude. Les artistes y adhérant mettent toutes les chances de leur côté afin de pouvoir s’exprimer pleinement et purement au travers de leur art et ce, sans subir la moindre restriction d’une grande maison de disques. Ces dernières sont reconnues dans le monde entier et en place depuis de nombreuses années, telles que **Universal** ou **Sony Music**. Leur objectif est simple : cartonner commercialement.
 De l’autre côté, les maisons de disques ou labels de musique indépendante ont une seule préoccupation : la musique en soi. Bien sûr, la liberté d’expression et de production octroyés par ces labels présente un désavantage certain, l’apport financier étant souvent très limité.
+
+<pre>
+I
+ N
+  D
+   I
+    E
+    T
+   E
+  S
+ T
+    </pre>
 
 
 
