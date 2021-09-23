@@ -1,6 +1,6 @@
 ## Qu'est-ce que la musique indépendante ?
 
-![Ibanez](https://zupimages.net/up/21/38/sk13.jpg)
+![Ibanez](https://zupimages.net/up/21/38/9pe0.jpg)
 
 La plupart des gens pense que la musique *indé* (ou *indie*) est un genre à part entière car ils l’associent à des genres populaires comme le rock ou la pop indépendants. Or, contrairement à cette croyance populaire, l’*indie* n’est pas un genre musical en soi.
 
