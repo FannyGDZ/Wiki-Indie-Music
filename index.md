@@ -1,8 +1,8 @@
 ## Qu'est-ce que la musique indépendante ?
 
-Énormément de gens pensent que la musique “indé” (ou “indie”) est un genre à part entière car ils l’associent à des genres populaires comme le rock ou la pop indépendants. Or, contrairement à cette croyance populaire, l’indie n’est pas un genre musical en soi.
+La plupart des gens pense que la musique *indé* (ou *indie*) est un genre à part entière car ils l’associent à des genres populaires comme le rock ou la pop indépendants. Or, contrairement à cette croyance populaire, l’*indie* n’est pas un genre musical en soi.
 
-En un mot comme en cent, le terme “indé” regroupe toute musique créée par un artiste indépendant. Autrement dit, des artistes ne bénéficiant pas du soutien de (grandes) maisons de disques.
+En un mot comme en cent, le terme *indé* regroupe toute musique créée par un artiste indépendant. Autrement dit, des artistes ne bénéficiant pas du soutien de (grandes) maisons de disques.
 Ce sont des artistes qui se sont lancés dans cette discipline par passion, sans avoir les yeux rivés sur la gloire ou l’argent.  Mais c’est au fil du temps que les choses ont changé et que les artistes indé ont commencé à se faire entendre dans le monde entier.
 
 Ces artistes et musiciens n’appartiennent pas tous au même genre de musique et ne peuvent donc pas être mis dans le même panier. C’est pour cela que l’on ne peut pas considérer l’indé comme un genre à part entière. Au lieu de ça, il s’agit plutôt d’un terme regroupant de nombreux sous-genres, tels que l’indie rock ou l’indie pop, qui ne diffèrent en rien avec leur équivalent plus traditionnel. Seulement, ce sont des artistes indépendants qui sont aux commandes de leurs projets.
