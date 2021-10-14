@@ -4,7 +4,7 @@ Navigation|
 
 ### Sources
 
-* https://promusicianhub.com/what-is-indie-music/
+* ProMusicianHub : [https://promusicianhub.com/what-is-indie-music/](https://promusicianhub.com/what-is-indie-music/)
 * https://www.newworldencyclopedia.org/entry/Indie_music
 * https://theconversation.com/explainer-indie-music-28321
 * https://prezi.com/lcbnxr1hc9zo/history-of-indie-music/
