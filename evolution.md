@@ -1,6 +1,6 @@
 Navigation|
 -------------------------------|-----------------------------------------------------------------|------
-[Page d'accueil](/indie-music/)|[L'évolution de la musique indépendante](./evolution)|[...]/
+[Page d'accueil](/indie-music/)|[L'évolution de la musique indépendante](./evolution)|[Autres](./autres)
 
 # La musique indépendante et son évolution
 
