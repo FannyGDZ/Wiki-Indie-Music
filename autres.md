@@ -5,8 +5,10 @@ Navigation|
 ## Musique alternative vs. musique indé 
 
 Ces deux concepts musicaux partagent assez de points communs pour qu’ils soient facilement confondus : ils ne s’affilient pas aux grands labels, les deux concepts sont vagues et n’ont pratiquement pas de règle. Ils étaient tous deux des excroissances des mouvements post-punk et new wave, qui étaient eux-mêmes dérivés du mouvement punk des années 70.
+
 Cependant, ces deux concepts, similaires à première vue, se sont vu devenir populaires à différents endroits : aux États-Unis pour l’alternatif et au Royaume-Uni pour l’indé. 
 Ils ont tous deux évolué jusqu’à devenir des concepts très variés regroupant de nombreux genres, mais à l’époque où ces deux styles musicaux avaient une sonorité qui les caractérisait particulièrement (après l’ère punk des années 80), l’indé était dans l’acoustique alors que l’alternatif se consacrait au rock.
+
 Aux États-Unis, c’est dans les années 90 que le rock alternatif est sorti de la scène underground grâce à son succès, et la scène alternative s’est retrouvée scindée en deux : les artistes s’alliant à de grandes maisons de disques et ceux restants underground. Les groupes de grunge comme Nirvana étaient devenus le visage commercial du rock alternatif et les groupes comme Pavement celui du rock indé. A ce stade, l’indé regroupait ces artistes qui étaient restés underground alors que l’alternatif était devenu ce terme générique pour décrire la musique populaire.
 
 ## Paradoxe commercial
