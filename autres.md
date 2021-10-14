@@ -3,14 +3,22 @@
 
     <tr><td> [Page d'accueil](/indie-music/) </td><td> [L'évolution de la musique indépendante](./evolution) </td><td> [Autres](./autres) </td><td> [Sources](./sources) </td></tr></table>
 
-  <h2> Musique alternative vs. musique indé </h2>
+<body>  <h2> Musique alternative vs. musique indé </h2>
+  
+  <p> Ces deux concepts musicaux partagent assez de points communs pour qu’ils soient facilement confondus : ils ne s’affilient pas aux grands labels, les deux concepts sont vagues et n’ont pratiquement pas de règle. Ils étaient tous deux des excroissances des mouvements post-punk et new wave, qui étaient eux-mêmes dérivés du mouvement punk des années 70. </p>
 
-<p> Ces deux concepts musicaux partagent assez de points communs pour qu’ils soient facilement confondus : ils ne s’affilient pas aux grands labels, les deux concepts sont vagues et n’ont pratiquement pas de règle. Ils étaient tous deux des excroissances des mouvements post-punk et new wave, qui étaient eux-mêmes dérivés du mouvement punk des années 70.
+<p> Cependant, ces deux concepts, similaires à première vue, se sont vu devenir populaires à différents endroits : aux États-Unis pour l’alternatif et au Royaume-Uni pour l’indé. 
+Ils ont tous deux évolué jusqu’à devenir des concepts très variés regroupant de nombreux genres, mais à l’époque où ces deux styles musicaux avaient une sonorité qui les caractérisait particulièrement (après l’ère punk des années 80), l’indé représentait plus de variété que l’alternatif qui se consacrait essentiellement au rock. </p>
+  
+    <table><tr><td> Musique alternative </td></tr><tr><td> Musique indé </td></tr>
 
-Cependant, ces deux concepts, similaires à première vue, se sont vu devenir populaires à différents endroits : aux États-Unis pour l’alternatif et au Royaume-Uni pour l’indé. 
-Ils ont tous deux évolué jusqu’à devenir des concepts très variés regroupant de nombreux genres, mais à l’époque où ces deux styles musicaux avaient une sonorité qui les caractérisait particulièrement (après l’ère punk des années 80), l’indé était dans l’acoustique alors que l’alternatif se consacrait au rock.
-
-Aux États-Unis, c’est dans les années 90 que le rock alternatif est sorti de la scène underground grâce à son succès, et la scène alternative s’est retrouvée scindée en deux : les artistes s’alliant à de grandes maisons de disques et ceux restants underground. Les groupes de grunge comme Nirvana étaient devenus le visage commercial du rock alternatif et les groupes comme Pavement celui du rock indé. A ce stade, l’indé regroupait ces artistes qui étaient restés underground alors que l’alternatif était devenu ce terme générique pour décrire la musique populaire. </p>
+    <tr><td> Non affilié aux grands labels </td><td> Non affilié aux grands labels </td></tr>
+    <tr><td> Peu ou pas de contraintes </td><td> Peu ou pas de contraintes </td></tr>
+    <tr><td> Issu du post-punk/new wave </td><td> Issu du post-punk/new wave </td></tr>
+    <tr><td> Populaire aux USA </td><td> Populaire au Royaume-Uni </td></tr>
+    <tr><td> Rock prédominant </td><td> Grande variété de genres </td></tr></table>
+  
+  <p> Aux États-Unis, c’est dans les années 90 que le rock alternatif est sorti de la scène underground grâce à son succès, et la scène alternative s’est retrouvée scindée en deux : les artistes s’alliant à de grandes maisons de disques et ceux restants underground. Les groupes de grunge comme Nirvana étaient devenus le visage commercial du rock alternatif et les groupes comme Pavement celui du rock indé. A ce stade, l’indé regroupait ces artistes qui étaient restés underground alors que l’alternatif était devenu ce terme générique pour décrire la musique populaire. </p>
 
   <h2> Paradoxe commercial </h2>
 
