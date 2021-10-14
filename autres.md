@@ -9,7 +9,7 @@ Ces deux concepts musicaux partagent assez de points communs pour qu’ils soien
 Cependant, ces deux concepts, similaires à première vue, se sont vu devenir populaires à différents endroits : aux États-Unis pour l’alternatif et au Royaume-Uni pour l’indé. 
 Ils ont tous deux évolué jusqu’à devenir des concepts très variés regroupant de nombreux genres, mais à l’époque où ces deux styles musicaux avaient une sonorité qui les caractérisait particulièrement (après l’ère punk des années 80), l’indé représentait plus de variété que l’alternatif qui se consacrait essentiellement au rock.
   
-|Musique alternative | Musique indé|
+Musique alternative|Musique indé
 |:--------------------:|:------------------------:|
 Non affilié aux grands labels|Non affilié aux grands labels
 Peu ou pas de contraintes
