@@ -4,7 +4,7 @@ Navigation|
 
 ### Sources
 
-* Pro Musician Hub : [https://promusicianhub.com/what-is-indie-music/](https://promusicianhub.com/what-is-indie-music/)
+* *Pro Musician Hub* : [https://promusicianhub.com/what-is-indie-music/](https://promusicianhub.com/what-is-indie-music/)
 * New World Encyclopedia : [https://www.newworldencyclopedia.org/entry/Indie_music/](https://www.newworldencyclopedia.org/entry/Indie_music/)
 * The Conversation : [https://theconversation.com/explainer-indie-music-28321](https://theconversation.com/explainer-indie-music-28321/)
 * Prezi : [https://prezi.com/lcbnxr1hc9zo/history-of-indie-music/](https://prezi.com/lcbnxr1hc9zo/history-of-indie-music/)
