@@ -1,6 +1,6 @@
 SOMMAIRE 
 --------------------------------------------------------------------------------------------
->[Page d'accueil](/indie-music/)|>[L'évolution de la musique indépendante](/evolution/)|>[...]/
+>[Page d'accueil](/indie-music/)|[L'évolution de la musique indépendante](/evolution/)|[...]/
 
 ![Ampli Ibanez](https://zupimages.net/up/21/38/9pe0.jpg)
 
