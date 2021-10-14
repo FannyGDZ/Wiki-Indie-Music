@@ -30,5 +30,4 @@ I
     
 SOMMAIRE |
 --------------------------------------------------------------------------------------------
-https://fannygdz.github.io/indie-music/ - automatic!
 [Page d'accueil](/indie-music/)|[L'évolution de la musique indépendante](/evolution/)|[...]/
