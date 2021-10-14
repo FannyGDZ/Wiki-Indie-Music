@@ -14,7 +14,7 @@ C'est avec la musique alternative, la new wave et surtout l'ère du post-punk qu
  
 ## Les années 70 – La naissance de la musique indépendante
  
-La musique indé en tant que style musical a toujours été difficile à cerner, notamment à cause de sa diversité sans précédent. Ce qui s’en rapprochait le plus, c’était la musique alternative (nous reviendrons dessus plus tard).
+La musique indé en tant que style musical a toujours été difficile à cerner, notamment à cause de sa diversité sans précédent. Ce qui s’en rapprochait le plus, c’était la [musique alternative](./autres).
 
 La sortie d’un certain Extended Play (EP) appelé « Spiral Scratch » en 1977 marquera à tout jamais le début de l’indé en tant que musique punk. Le groupe derrière cet EP, les Buzzcocks, n’avait pas les fonds nécessaires pour pouvoir promouvoir leur musique. Ils les ont donc collectés auprès de leurs familles et amis. Cela n’a pas empêché ce disque de devenir un énorme succès, et la musique indépendante était donc née. Le fait d’avoir vendu cet EP chez un disquaire l’a rendu aussi accessible que les productions réalisées à des fins commerciales. Le simple concept de vendre de la musique indépendante a jeté les bases de ce qui allait arriver plus tard. C’est comme ça que beaucoup de producteurs de musique et artistes adopteront le concept de musique indépendante. Mais le plus important, c’est qu’ils avaient réussi à prouver qu’il était possible, en tant qu’artiste, d’avoir un contrôle total sur sa musique et ce, de la production jusqu’à la distribution. Par la même occasion, ils ont inventé la musique indé.
 
