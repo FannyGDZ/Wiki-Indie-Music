@@ -10,10 +10,10 @@ Cependant, ces deux concepts, similaires à première vue, se sont vu devenir po
 Ils ont tous deux évolué jusqu’à devenir des concepts très variés regroupant de nombreux genres, mais à l’époque où ces deux styles musicaux avaient une sonorité qui les caractérisait particulièrement (après l’ère punk des années 80), l’indé représentait plus de variété que l’alternatif qui se consacrait essentiellement au rock.
   
 Musique alternative|Musique indé
-|:--------------------:|:------------------------:|
+:--------------------:|:------------------------:
 Non affilié aux grands labels|Non affilié aux grands labels
-Peu ou pas de contraintes
-Issu du post-punk/new wave
+Peu ou pas de contraintes|Peu ou pas de contraintes
+Issu du post-punk/new wave|Issu du post-punk/new wave
 Populaire aux USA|Populaire au Royaume-Uni
 Rock prédominant|Grande variété de genres
   
