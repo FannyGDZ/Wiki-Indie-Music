@@ -16,6 +16,7 @@ Peu ou pas de contraintes|Peu ou pas de contraintes
 Issu du post-punk/new wave|Issu du post-punk/new wave
 Populaire aux USA|Populaire au Royaume-Uni
 Rock prédominant|Grande variété de genres
+Définit un genre|Définit une méthode de diffusion
   
 Aux États-Unis, c’est dans les années 90 que le rock alternatif est sorti de la scène underground grâce à son succès, et la scène alternative s’est retrouvée scindée en deux : les artistes s’alliant à de grandes maisons de disques et ceux restants underground. Les groupes de grunge comme Nirvana étaient devenus le visage commercial du rock alternatif et les groupes comme Pavement celui du rock indé. A ce stade, l’indé regroupait ces artistes qui étaient restés underground alors que l’alternatif était devenu ce terme générique pour décrire la musique populaire.
 
