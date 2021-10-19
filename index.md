@@ -2,7 +2,7 @@ Navigation|
 -------------------------------|-----------------------------------------------------------------|------
 [Page d'accueil](/indie-music/)|[L'évolution de la musique indépendante](./evolution)|[Autres](./autres)|[Sources](./sources)
 
-![Ampli Ibanez](https://zupimages.net/up/21/38/9pe0.jpg)
+![Ampli Ibanez](https://zupimages.net/up/21/42/5q0i.jpg)
 
 ## Qu'appelle-t-on réellement la musique indépendante ?
 
