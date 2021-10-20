@@ -5,7 +5,7 @@ Navigation|
 # La musique indépendante et son évolution
 
 * [Les années 50 et 60](#les-années-50-et-60---les-origines-du-concept)
-* [Les années 70](#les-années-70---la-naissance-de-la-musique-indépendante)
+* [Les années 70](#les-années-70)
 * [Les années 80](#les-années-80---l’âge-d’or)
 * [Les années 90](#les-années-90---la-renaissance)
 * [Plus récemment](#plus-récemment)
