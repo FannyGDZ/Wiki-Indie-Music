@@ -4,6 +4,8 @@ Navigation|
 
 # La musique indépendante et son évolution
 
+* [Les années 50 et 60](## Les années 50 et 60 - Les origines du concept)
+
 ## Les années 50 et 60 - Les origines du concept
  
 Le concept de musique indépendante est très vague. Cependant, on peut retracer ses origines jusqu'aux années 50 et 60 avec la création de labels indépendants tels que Sun Records de Sam Phillips ou encore Motown Records de Berry Gordy. 
