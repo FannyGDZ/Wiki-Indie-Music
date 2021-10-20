@@ -5,9 +5,9 @@ Navigation|
 # La musique indépendante et son évolution
 
 * [Les années 50 et 60](#les-années-50-et-60---les-origines-du-concept)
-* [Les années 70](#les-années-70)
-* [Les années 80](#les-années-80---l’âge-d’or)
-* [Les années 90](#les-années-90---la-renaissance)
+* [Les années 70](#les-années-70-la-naissance-de-la-musique-independante)
+* [Les années 80](#les-années-80-,-l’âge-d’or)
+* [Les années 90](#les-années-90-,-la-renaissance)
 * [Plus récemment](#plus-récemment)
 
 ## Les années 50 et 60 - Les origines du concept
@@ -26,7 +26,7 @@ La sortie d’un certain Extended Play (EP) appelé « Spiral Scratch » en 1977
 
 Mais l’indé en tant que style musical défini n’est apparu qu’avec les mouvements post-punk et new wave au travers de musiques sorties à la fin des années 70 avec des labels indépendants du Royaume-Uni comme Rough Trade de Geoff Travis, Factory Records de Tony Wilson et bien d’autres, qui ont été fondés en 1978. Ces labels ont joué un rôle essentiel dans l’évolution de la musique indé. On peut dire sans prendre de risque que la véritable naissance de la musique indé était à la fin des années 70 et nous allons voir que c'est pendant les années 80 que ce concept a véritablement explosé.
  
-## Les années 80 – L’âge d’or
+## Les années 80, L’âge d’or
  
 Pendant les années 80, la musique indé est passée de musique punk rock à une multitude de genres et styles et a rapidement atteint une renommée mondiale grâce à de grands noms.
 Le groupe de rock anglais The Smiths a signé chez Rough Trade au milieu de la décennie et en seulement 2 ans, ils réalisent et publient leurs albums « Meat is Murder » et « The Queen is Dead » qui se révèleront être de véritables références grâce à leurs succès sans égal et ce, sans être affilié à la moindre grande maison de disques. Le groupe anglais s’est donc retrouvé à faire des tournées dans le monde entier, partageant leur culture de la musique indépendante. Ils influenceront alors de nombreux jeunes artistes qui, à leur tour, adopteront ce style musical dans leurs futures carrières.
@@ -35,7 +35,7 @@ Du côté des États-Unis, le groupe R.E.M s’était formé en 1980 en tant que
 
 Plus tard, de nouveaux genres sont devenus populaires grâce aux nombreux groupe indépendants et leurs musiques. Voilà pourquoi les années 80 sont considérées comme l’âge d’or des artistes indé. La musique indé est passée principalement du punk avec une liberté totale à un style proche du rock classique avec un grain plus léger. Et malgré un nombre important de musiques électronique, métal ou encore country de la part de labels indépendants, la musique indé désigne désormais une musique non commerciale, rythmée par de la guitare et adoptant un style fait maison. Elle présentait souvent des paroles sérieuses et réalistes remplies d’émotions, au bord du pessimisme, avec de nombreuses références sociopolitiques et artistiques.
  
-## Les années 90 – La renaissance
+## Les années 90, La renaissance
  
 Tout comme les années 80, cette période a attiré de beaucoup de nouveaux artistes ayant été influencés par les grands noms comme Nirvana, Radiohead ou encore Elliot Smith.
 Cette fois en revanche, c’est également une nouvelle panoplie de genres et de styles musicaux qui font leur apparition dans la musique indépendante. De plus, toujours plus de musiciens et de fans étaient à la recherche d’alternatives à la musique grand public traditionnelle.
