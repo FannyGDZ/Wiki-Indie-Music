@@ -6,7 +6,7 @@ Navigation|
 
    * [Origines](#origines-du-concept)
    * [Explosion de la musique indé](#explosion-de-la-musique-indé)
-   * [Âge d'or](#âge-d-or)
+   * [Âge d'or](#âge-dor)
    * [Évolutions techniques](#évolutions-techniques)
    * [Plus récemment](#plus-récemment)
 
