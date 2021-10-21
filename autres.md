@@ -2,21 +2,21 @@ Navigation|
 -------------------------------|-----------------------------------------------------------------|------
 [Page d'accueil](/indie-music/)|[L'évolution de la musique indépendante](./evolution)|[Autres](./autres)|[Sources](./sources)
 
-## Musique alternative vs. musique indé
+## Quid de la musique alternative ?
   
+La musique alternative n'est pas à dissocier de la musique indépendante, puisqu'elle suit elle-même le circuit indépendant. Il s'agit simplement d'un mode de distribution qui s'inscrit en dehors des circuits habituels. Selon [Wikipédia](https://fr.wikipedia.org/wiki/Musique_alternative), la musique alternative peut se définir comme tel :
+
+<pre>
+Une musique alternative est une musique qui s'affranchit de tout type d'appartenance de style, de forme de jeu, de famille musicale, de règles à respecter.
+</pre>
+
+
 Ces deux concepts musicaux partagent assez de points communs pour qu’ils soient facilement confondus : ils ne s’affilient pas aux grands labels, les deux concepts sont vagues et n’ont pratiquement pas de règle. Ils étaient tous deux des excroissances des mouvements post-punk et new wave, qui étaient eux-mêmes dérivés du mouvement punk des années 70.
 
 Cependant, ces deux concepts, similaires à première vue, se sont vu devenir populaires à différents endroits : aux États-Unis pour l’alternatif et au Royaume-Uni pour l’indé. 
 Ils ont tous deux évolué jusqu’à devenir des concepts très variés regroupant de nombreux genres, mais à l’époque où ces deux styles musicaux avaient une sonorité qui les caractérisait particulièrement (après l’ère punk des années 80), l’indé représentait plus de variété que l’alternatif qui se consacrait essentiellement au rock.
   
-Musique alternative|Musique indé
-:--------------------:|:------------------------:
-Non affilié aux grands labels|Non affilié aux grands labels
-Peu ou pas de contraintes|Peu ou pas de contraintes
-Issu du post-punk/new wave|Issu du post-punk/new wave
-Populaire aux USA|Populaire au Royaume-Uni
-Rock prédominant|Grande variété de genres
-Définit un genre|Définit une méthode de diffusion
+
   
 Aux États-Unis, c’est dans les années 90 que le rock alternatif est sorti de la scène underground grâce à son succès, et la scène alternative s’est retrouvée scindée en deux : les artistes s’alliant à de grandes maisons de disques et ceux restants underground. Les groupes de grunge comme Nirvana étaient devenus le visage commercial du rock alternatif et les groupes comme Pavement celui du rock indé. A ce stade, l’indé regroupait ces artistes qui étaient restés underground alors que l’alternatif était devenu ce terme générique pour décrire la musique populaire.
 
