@@ -8,8 +8,8 @@ La musique alternative n'est pas à dissocier de la musique indépendante, puisq
 
 <pre>
 Une musique alternative est une musique qui s'affranchit de tout type
-d'appartenance de style, de forme de jeu, de famille musicale,
-de règles à respecter.
+    d'appartenance de style, de forme de jeu, de famille musicale,
+                      de règles à respecter.
 </pre>
 
 
