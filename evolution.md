@@ -50,7 +50,7 @@ Plus tard, de nouveaux genres sont devenus populaires grâce aux nombreux groupe
  
 ![Radiohead Pablo Honey](https://zupimages.net/up/21/43/yi9o.jpg)
 
-Tout comme la décennie précédente, les **années 90** ont attiré de beaucoup de nouveaux artistes ayant été influencés par les grands noms comme **Nirvana**, **Radiohead** ou encore **Elliot Smith**. Cette fois en revanche, c’est également une nouvelle panoplie de genres et de styles musicaux qui font leur apparition dans la musique indépendante. De plus, toujours plus de musiciens et de fans étaient à la recherche d’alternatives à la musique grand public traditionnelle.
+Tout comme la décennie précédente, les **années 90** ont attiré beaucoup de nouveaux artistes ayant été influencés par les grands noms comme **Nirvana**, **Radiohead** ou encore **Elliot Smith**. Cette fois en revanche, c’est également une nouvelle panoplie de genres et de styles musicaux qui font leur apparition dans la musique indépendante. De plus, toujours plus de musiciens et de fans étaient à la recherche d’alternatives à la musique grand public traditionnelle.
 
 C’est durant cette période que le concept musical s’est vraiment retrouvé sur le devant de la scène. C’est en grande partie grâce aux groupes de grunge, bien que certains d’entre eux soient devenus grand public et aient signé avec des labels reconnus. Une autre raison expliquant ce succès des années 90 est l’accès bien plus facile et abordable au matériel d’enregistrement à domicile, permettant aux artistes de ne pas dépenser des fortunes en louant des studios.
 
