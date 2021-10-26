@@ -14,6 +14,8 @@ Navigation|
 
 ## Origines du concept
  
+![Sun Records](https://zupimages.net/up/21/43/ow6u.jpg)
+
 Le concept de musique indépendante est très vague. Cependant, on peut retracer ses origines à partir des **années 50 et 60** avec la création de labels indépendants tels que **Sun Records** de Sam Phillips ou encore **Motown Records** de Berry Gordy. Aujourd’hui ces productions ne sont pas considérées comme de la musique indépendante car cette dernière a évolué, et le simple fait d'être associé à un label indépendant ne suffit plus.
 En plus de cela, toute une myriade de petits groupes de « *garage rock* » voient le jour vers la fin des **années 60**. Le rock’n’roll simple et efficace des **Beatles** et d’autres groupes de la « *British Invasion* » aura inspiré beaucoup de groupes jusqu’à sortir un single ou un album dans leur région, mais ces derniers tombaient le plus souvent vite dans l’oubli. Pour couronner le tout, pendant ces deux décennies, les grandes maisons de disques étaient si puissantes que les labels indépendants avaient beaucoup de mal à se mettre en place.
 
