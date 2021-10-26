@@ -10,19 +10,19 @@ Navigation|
 La musique alternative n'est pas à dissocier de la musique indépendante, puisqu'elle suit elle-même le circuit indépendant. Il s'agit simplement d'un mode de distribution qui s'inscrit en dehors des circuits habituels. Selon [Wikipédia](https://fr.wikipedia.org/wiki/Musique_alternative), la musique alternative peut se définir comme tel :
 
 <pre>
-   Une musique alternative est une musique qui s'affranchit de tout type
-       d'appartenance de style, de forme de jeu, de famille musicale,
-                        de règles à respecter.
+  Une musique alternative est une musique qui s'affranchit de tout type
+      d'appartenance de style, de forme de jeu, de famille musicale,
+                       de règles à respecter.
 </pre>
 
 De même, le dictionnaire américain [Merriam Webster](https://www.merriam-webster.com/dictionary/alternative%20music) la définit ainsi :
 
 <pre>
-           Music that is produced by performers who are outside
-            the musical mainstream, that is typically regarded 
-           as more eclectic, original, or challenging than most
-        popular music (such as conventional rock, pop, or country),
-        and that is often distributed by independent record labels.
+          Music that is produced by performers who are outside
+           the musical mainstream, that is typically regarded 
+          as more eclectic, original, or challenging than most
+       popular music (such as conventional rock, pop, or country),
+       and that is often distributed by independent record labels.
 </pre>
 *Traduction :*
 <pre>
