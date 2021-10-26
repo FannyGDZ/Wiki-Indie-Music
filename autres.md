@@ -5,6 +5,7 @@ Navigation|
 ## Quid de la musique alternative ?
 
 ![Blur](https://zupimages.net/up/21/43/c6gg.jpg)
+*Le groupe britannique Blur dans les années 90*
 
 La musique alternative n'est pas à dissocier de la musique indépendante, puisqu'elle suit elle-même le circuit indépendant. Il s'agit simplement d'un mode de distribution qui s'inscrit en dehors des circuits habituels. Selon [Wikipédia](https://fr.wikipedia.org/wiki/Musique_alternative), la musique alternative peut se définir comme tel :
 
