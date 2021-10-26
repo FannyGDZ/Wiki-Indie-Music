@@ -18,21 +18,21 @@ Une musique alternative est une musique qui s'affranchit de tout type
 De même, le dictionnaire américain [Merriam Webster](https://www.merriam-webster.com/dictionary/alternative%20music) la définit ainsi :
 
 <pre>
-        Music that is produced by performers who are outside
-         the musical mainstream, that is typically regarded 
-        as more eclectic, original, or challenging than most
-      popular music (such as conventional rock, pop, or country),
-      and that is often distributed by independent record labels.
+            Music that is produced by performers who are outside
+             the musical mainstream, that is typically regarded 
+            as more eclectic, original, or challenging than most
+         popular music (such as conventional rock, pop, or country),
+         and that is often distributed by independent record labels.
 </pre>
 *Traduction :*
 <pre>
-De la musique produite par des artistes en dehors
-  des courants populaires, qui est généralement
-vue comme plus écclectique, originale ou défiant
-      les diktats de la musique populaire
-(comme le rock, la pop ou la country classiques),
-      et qui est très souvent distribuée
-         par des labels indépendants.
+           De la musique produite par des artistes en dehors
+             des courants populaires, qui est généralement
+           vue comme plus écclectique, originale ou défiant
+                  les diktats de la musique populaire
+           (comme le rock, la pop ou la country classiques),
+                   et qui est très souvent distribuée
+                      par des labels indépendants.
 </pre>
 
 ![Eddie Vedder](https://zupimages.net/up/21/43/f2au.jpg)
