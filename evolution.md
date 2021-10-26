@@ -25,7 +25,7 @@ C'est avec la musique alternative, le punk, la new wave et surtout l'ère du pos
  
 La musique indé a toujours été difficile à cerner, notamment à cause de sa diversité.
 
-->![Spiral Scratch](https://zupimages.net/up/21/43/0hjg.jpg#center)<-
+![Spiral Scratch](https://zupimages.net/up/21/43/0hjg.jpg#center)
 
 La sortie d’un certain EP (extended play) appelé « *Spiral Scratch* » en 1977 marquera à tout jamais les débuts de la musique punk, grand genre de la musique indépendante. Le groupe derrière cet EP, les **Buzzcocks**, n’avait pas les fonds nécessaires pour pouvoir promouvoir leur musique. Ils les ont donc collectés auprès de leurs familles et amis. Cela n’a pas empêché à ce disque de devenir un énorme succès, et la musique indépendante de se populariser.
 Le fait d’avoir vendu cet EP chez un disquaire l’a rendu aussi accessible que les productions réalisées par de grands labels. Le simple concept de vendre de la musique indépendante a jeté les bases de ce qui allait arriver plus tard. C’est comme cela que beaucoup de producteurs de musique et artistes adopteront le concept de musique indépendante. Mais le plus important, c’est qu’ils avaient réussi à prouver qu’il était possible, en tant qu’artiste, d’avoir un contrôle total sur sa musique et ce, de la production jusqu’à la distribution.
@@ -35,8 +35,12 @@ On peut donc dire que la musique indépendante s’est établie pendant les **an
  
 ## Âge d’or
  
+![The Smiths](https://zupimages.net/up/21/43/ldsx.jpg)
+
 Pendant les **années 80**, la musique indé est passée de musique punk à une multitude de genres et styles et a rapidement atteint une renommée mondiale grâce à de grands noms.
 Le groupe de rock anglais **The Smiths** a signé chez **Rough Trade** au milieu de la décennie et en seulement 2 ans, ils réalisent et publient leurs albums « *Meat is Murder* » et « *The Queen is Dead* » qui se révèleront être de véritables références grâce à leurs succès sans égal et ce, sans être affilié à la moindre grande maison de disques. Le groupe anglais s’est donc retrouvé à faire des tournées dans le monde entier, partageant leur culture de la musique indépendante. Ils influenceront alors de nombreux jeunes artistes qui, à leur tour, adopteront ce mode de distribution dans leurs futures carrières.
+
+![R.E.M. Out of Time](https://zupimages.net/up/21/43/hxko.jpg)
 
 Du côté des États-Unis, le groupe **R.E.M** s’est formé en 1980 en tant que l’un des premiers groupes de rock alternatif du pays. Un grand nombre de groupes ont marché dans leurs pas, et pas des moindre puisque cela inclut des groupes tels que **Nirvana**. Les **R.E.M** sont restés loyaux à la musique indé tout au long des **années 80 et 90** et leur album « *Out of Time* » était considéré comme l’un des derniers remparts du rock alternatif, avant que ce dernier ne devienne complètement grand public.
 
@@ -44,6 +48,8 @@ Plus tard, de nouveaux genres sont devenus populaires grâce aux nombreux groupe
 
 ## Évolutions techniques
  
+![Radiohead Pablo Honey](https://zupimages.net/up/21/43/yi9o.jpg)
+
 Tout comme la décennie précédente, les **années 90** ont attiré de beaucoup de nouveaux artistes ayant été influencés par les grands noms comme **Nirvana**, **Radiohead** ou encore **Elliot Smith**. Cette fois en revanche, c’est également une nouvelle panoplie de genres et de styles musicaux qui font leur apparition dans la musique indépendante. De plus, toujours plus de musiciens et de fans étaient à la recherche d’alternatives à la musique grand public traditionnelle.
 
 C’est durant cette période que le concept musical s’est vraiment retrouvé sur le devant de la scène. C’est en grande partie grâce aux groupes de grunge, bien que certains d’entre eux soient devenus grand public et aient signé avec des labels reconnus. Une autre raison expliquant ce succès des années 90 est l’accès bien plus facile et abordable au matériel d’enregistrement à domicile, permettant aux artistes de ne pas dépenser des fortunes en louant des studios.
