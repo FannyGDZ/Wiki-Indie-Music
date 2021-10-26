@@ -14,3 +14,8 @@ Navigation|
 * *Wikipédia (FR)* : [https://fr.wikipedia.org/wiki/Musique_alternative](https://fr.wikipedia.org/wiki/Musique_alternative/)
 * *Siachen Studios* : [https://siachenstudios.com/blog/what-is-indie-music/](https://siachenstudios.com/blog/what-is-indie-music/)
 * *Merriam Webster* : [https://www.merriam-webster.com/dictionary/alternative%20music](https://www.merriam-webster.com/dictionary/alternative%20music/)
+
+    Images :
+
+* *"Music's Big Bang Timeline"* by razvan.penescu [https://www.timetoast.com/timelines/music-s-big-bang-timeline](https://www.timetoast.com/timelines/music-s-big-bang-timeline)
+* 
