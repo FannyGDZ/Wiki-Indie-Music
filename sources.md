@@ -16,7 +16,8 @@ Navigation|
 * *Merriam Webster* : [https://www.merriam-webster.com/dictionary/alternative%20music](https://www.merriam-webster.com/dictionary/alternative%20music/)
 
 
-    Images :
+
+    **Images :**
 
 * *"Music's Big Bang Timeline" by razvan.penescu* [https://tinyurl.com/musics-big-bang-timeline](https://www.timetoast.com/timelines/music-s-big-bang-timeline)
 * *Radiox* [https://www.radiox.co.uk/features/x-lists/best-eps-of-all-time/](https://www.radiox.co.uk/features/x-lists/best-eps-of-all-time/)
