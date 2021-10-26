@@ -14,7 +14,7 @@ Navigation|
 
 ## Origines du concept
  
-![Sun Records](https://zupimages.net/up/21/43/ow6u.jpg)
+ ![Sun Records](https://zupimages.net/up/21/43/ow6u.jpg)
 
 Le concept de musique indépendante est très vague. Cependant, on peut retracer ses origines à partir des **années 50 et 60** avec la création de labels indépendants tels que **Sun Records** de Sam Phillips ou encore **Motown Records** de Berry Gordy. Aujourd’hui ces productions ne sont pas considérées comme de la musique indépendante car cette dernière a évolué, et le simple fait d'être associé à un label indépendant ne suffit plus.
 En plus de cela, toute une myriade de petits groupes de « *garage rock* » voient le jour vers la fin des **années 60**. Le rock’n’roll simple et efficace des **Beatles** et d’autres groupes de la « *British Invasion* » aura inspiré beaucoup de groupes jusqu’à sortir un single ou un album dans leur région, mais ces derniers tombaient le plus souvent vite dans l’oubli. Pour couronner le tout, pendant ces deux décennies, les grandes maisons de disques étaient si puissantes que les labels indépendants avaient beaucoup de mal à se mettre en place.
@@ -25,7 +25,7 @@ C'est avec la musique alternative, le punk, la new wave et surtout l'ère du pos
  
 La musique indé a toujours été difficile à cerner, notamment à cause de sa diversité.
 
-![Spiral Scratch](https://zupimages.net/up/21/43/0hjg.jpg)
+![Spiral Scratch](https://zupimages.net/up/21/43/0hjg.jpg#center)
 
 La sortie d’un certain EP (extended play) appelé « *Spiral Scratch* » en 1977 marquera à tout jamais les débuts de la musique punk, grand genre de la musique indépendante. Le groupe derrière cet EP, les **Buzzcocks**, n’avait pas les fonds nécessaires pour pouvoir promouvoir leur musique. Ils les ont donc collectés auprès de leurs familles et amis. Cela n’a pas empêché à ce disque de devenir un énorme succès, et la musique indépendante de se populariser.
 Le fait d’avoir vendu cet EP chez un disquaire l’a rendu aussi accessible que les productions réalisées par de grands labels. Le simple concept de vendre de la musique indépendante a jeté les bases de ce qui allait arriver plus tard. C’est comme cela que beaucoup de producteurs de musique et artistes adopteront le concept de musique indépendante. Mais le plus important, c’est qu’ils avaient réussi à prouver qu’il était possible, en tant qu’artiste, d’avoir un contrôle total sur sa musique et ce, de la production jusqu’à la distribution.
