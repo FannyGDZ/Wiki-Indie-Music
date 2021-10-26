@@ -3,7 +3,7 @@ Navigation|
 [Page d'accueil](/indie-music/)|[L'évolution de la musique indépendante](./evolution)|[Autres](./autres)|[Sources](./sources)
 
 ![Ampli Ibanez](https://zupimages.net/up/21/42/w22e.png)
-*Un amplificateur de la marque Ibanez*
+*Un amplificateur IBZ60 TE Tube de la marque Ibanez*
 
 ## Qu'appelle-t-on réellement la musique indépendante ?
 
