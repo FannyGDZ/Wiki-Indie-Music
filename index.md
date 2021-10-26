@@ -3,7 +3,9 @@ Navigation|
 [Page d'accueil](/indie-music/)|[L'évolution de la musique indépendante](./evolution)|[Autres](./autres)|[Sources](./sources)
 
 ![La musique indépendante](https://zupimages.net/up/21/43/h488.jpg)
-###### *Amplificateur IBZ60 TE Tube de la marque Ibanez, avec une guitare Fender Telecaster*
+```apache
+*Amplificateur IBZ60 TE Tube de la marque Ibanez, avec une guitare Fender Telecaster*
+```
 
 ## Qu'appelle-t-on réellement la musique indépendante ?
 
