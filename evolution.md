@@ -40,7 +40,7 @@ On peut donc dire que la musique indépendante s’est établie pendant les **an
 Pendant les **années 80**, la musique indé est passée de musique punk à une multitude de genres et styles et a rapidement atteint une renommée mondiale grâce à de grands noms.
 Le groupe de rock anglais **The Smiths** a signé chez **Rough Trade** au milieu de la décennie et en seulement 2 ans, ils réalisent et publient leurs albums « *Meat is Murder* » et « *The Queen is Dead* » qui se révèleront être de véritables références grâce à leurs succès sans égal et ce, sans être affilié à la moindre grande maison de disques. Le groupe anglais s’est donc retrouvé à faire des tournées dans le monde entier, partageant leur culture de la musique indépendante. Ils influenceront alors de nombreux jeunes artistes qui, à leur tour, adopteront ce mode de distribution dans leurs futures carrières.
 
-![R.E.M. Out of Time](https://zupimages.net/up/21/43/hxko.jpg)
+![R.E.M. Out of Time](https://zupimages.net/up/21/43/2qy8.jpg)
 
 Du côté des États-Unis, le groupe **R.E.M** s’est formé en 1980 en tant que l’un des premiers groupes de rock alternatif du pays. Un grand nombre de groupes ont marché dans leurs pas, et pas des moindre puisque cela inclut des groupes tels que **Nirvana**. Les **R.E.M** sont restés loyaux à la musique indé tout au long des **années 80 et 90** et leur album « *Out of Time* » était considéré comme l’un des derniers remparts du rock alternatif, avant que ce dernier ne devienne complètement grand public.
 
