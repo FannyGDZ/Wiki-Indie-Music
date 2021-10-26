@@ -19,7 +19,7 @@ Navigation|
     Images :
 
 * *"Music's Big Bang Timeline" by razvan.penescu* [https://tinyurl.com/musics-big-bang-timeline](https://www.timetoast.com/timelines/music-s-big-bang-timeline)
-* *Radiox.co.uk* [https://www.radiox.co.uk/features/x-lists/best-eps-of-all-time/](https://www.radiox.co.uk/features/x-lists/best-eps-of-all-time/)
-* *Rollingstone.com* [https://tinyurl.com/the-queen-is-dead](https://www.rollingstone.com/music/music-news/how-smiths-the-queen-is-dead-married-high-wit-heavy-drama-73094/)
-* *The-solute.com* [http://www.the-solute.com/the-solute-record-club-rem-out-of-time/](http://www.the-solute.com/the-solute-record-club-rem-out-of-time/)
-* *Archive.org* [https://archive.org/details/RadioheadPabloHoney](https://archive.org/details/RadioheadPabloHoney)
+* *Radiox* [https://www.radiox.co.uk/features/x-lists/best-eps-of-all-time/](https://www.radiox.co.uk/features/x-lists/best-eps-of-all-time/)
+* *Rolling Stone* [https://tinyurl.com/the-queen-is-dead](https://www.rollingstone.com/music/music-news/how-smiths-the-queen-is-dead-married-high-wit-heavy-drama-73094/)
+* *The-Solute* [http://www.the-solute.com/the-solute-record-club-rem-out-of-time/](http://www.the-solute.com/the-solute-record-club-rem-out-of-time/)
+* *Internet Archive* [https://archive.org/details/RadioheadPabloHoney](https://archive.org/details/RadioheadPabloHoney)
