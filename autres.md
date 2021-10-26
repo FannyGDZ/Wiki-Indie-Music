@@ -35,7 +35,7 @@ vue comme plus écclectique, originale ou défiant
          par des labels indépendants.
 </pre>
 
-[Eddie Vedder](https://zupimages.net/up/21/43/f2au.jpg)
+![Eddie Vedder](https://zupimages.net/up/21/43/f2au.jpg)
 *Eddie Vedder, chanteur de Pearl Jam, se jetant dans la foule du haut d'un échaffaudage au Pinkpop Festival de 1992*
 
 La musique alternative est donc dans la grande majorité des cas une musique indépendante avant tout. Elle suit ce mode de distribution s'affranchissant des règles imposées par les circuits habituels. Cette *catégorie* de musique, si l'on peut la dénommer ainsi, n'a pas de frontières réellement définies puisqu'elle ne se limite pas à un genre. Elle puise ses sources au son des guitares punk et rock mais représente aujourd'hui toute une tripotée de genres. La musique se renouvelle sans cesse au fil du temps, les artistes s'influencent les uns les autres et la font évoluer, et cela est aussi vrai dans la musique alternative que dans la musique dite *commerciale*.
