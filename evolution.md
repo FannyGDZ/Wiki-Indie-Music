@@ -15,6 +15,7 @@ Navigation|
 ## Origines du concept
  
  ![Sun Records](https://zupimages.net/up/21/43/q4dl.jpg)
+ *Logo du label Sun Records, 1952*
 
 Le concept de musique indépendante est très vague. Cependant, on peut retracer ses origines à partir des **années 50 et 60** avec la création de labels indépendants tels que **Sun Records** de Sam Phillips ou encore **Motown Records** de Berry Gordy. Aujourd’hui ces productions ne sont pas considérées comme de la musique indépendante car cette dernière a évolué, et le simple fait d'être associé à un label indépendant ne suffit plus.
 En plus de cela, toute une myriade de petits groupes de « *garage rock* » voient le jour vers la fin des **années 60**. Le rock’n’roll simple et efficace des **Beatles** et d’autres groupes de la « *British Invasion* » aura inspiré beaucoup de groupes jusqu’à sortir un single ou un album dans leur région, mais ces derniers tombaient le plus souvent vite dans l’oubli. Pour couronner le tout, pendant ces deux décennies, les grandes maisons de disques étaient si puissantes que les labels indépendants avaient beaucoup de mal à se mettre en place.
@@ -26,6 +27,7 @@ C'est avec la musique alternative, le punk, la new wave et surtout l'ère du pos
 La musique indé a toujours été difficile à cerner, notamment à cause de sa diversité.
 
 ![Spiral Scratch](https://zupimages.net/up/21/43/qhhn.jpg)
+*Le vinyle de l'EP Spiral Scratch, 1977*
 
 La sortie d’un certain EP (extended play) appelé « *Spiral Scratch* » en 1977 marquera à tout jamais les débuts de la musique punk, grand genre de la musique indépendante. Le groupe derrière cet EP, les **Buzzcocks**, n’avait pas les fonds nécessaires pour pouvoir promouvoir leur musique. Ils les ont donc collectés auprès de leurs familles et amis. Cela n’a pas empêché à ce disque de devenir un énorme succès, et la musique indépendante de se populariser.
 Le fait d’avoir vendu cet EP chez un disquaire l’a rendu aussi accessible que les productions réalisées par de grands labels. Le simple concept de vendre de la musique indépendante a jeté les bases de ce qui allait arriver plus tard. C’est comme cela que beaucoup de producteurs de musique et artistes adopteront le concept de musique indépendante. Mais le plus important, c’est qu’ils avaient réussi à prouver qu’il était possible, en tant qu’artiste, d’avoir un contrôle total sur sa musique et ce, de la production jusqu’à la distribution.
@@ -36,11 +38,13 @@ On peut donc dire que la musique indépendante s’est établie pendant les **an
 ## Âge d’or
  
 ![The Smiths](https://zupimages.net/up/21/43/ldsx.jpg)
+*Le chanteur Morrissey du groupe The Smiths lors d'un concert à Manchester en 1986*
 
 Pendant les **années 80**, la musique indé est passée de musique punk à une multitude de genres et styles et a rapidement atteint une renommée mondiale grâce à de grands noms.
 Le groupe de rock anglais **The Smiths** a signé chez **Rough Trade** au milieu de la décennie et en seulement 2 ans, ils réalisent et publient leurs albums « *Meat is Murder* » et « *The Queen is Dead* » qui se révèleront être de véritables références grâce à leurs succès sans égal et ce, sans être affilié à la moindre grande maison de disques. Le groupe anglais s’est donc retrouvé à faire des tournées dans le monde entier, partageant leur culture de la musique indépendante. Ils influenceront alors de nombreux jeunes artistes qui, à leur tour, adopteront ce mode de distribution dans leurs futures carrières.
 
 ![R.E.M. Out of Time](https://zupimages.net/up/21/43/2qy8.jpg)
+*Couverture de l'album Out of Time du groupe R.E.M, 1991*
 
 Du côté des États-Unis, le groupe **R.E.M** s’est formé en 1980 en tant que l’un des premiers groupes de rock alternatif du pays. Un grand nombre de groupes ont marché dans leurs pas, et pas des moindre puisque cela inclut des groupes tels que **Nirvana**. Les **R.E.M** sont restés loyaux à la musique indé tout au long des **années 80 et 90** et leur album « *Out of Time* » était considéré comme l’un des derniers remparts du rock alternatif, avant que ce dernier ne devienne complètement grand public.
 
@@ -49,6 +53,7 @@ Plus tard, de nouveaux genres sont devenus populaires grâce aux nombreux groupe
 ## Évolutions techniques
  
 ![Radiohead Pablo Honey](https://zupimages.net/up/21/43/yi9o.jpg)
+*Couverture de l'album Pablo Honey du groupe Radiohead, 1993*
 
 Tout comme la décennie précédente, les **années 90** ont attiré beaucoup de nouveaux artistes ayant été influencés par les grands noms comme **Nirvana**, **Radiohead** ou encore **Elliot Smith**. Cette fois en revanche, c’est également une nouvelle panoplie de genres et de styles musicaux qui font leur apparition dans la musique indépendante. De plus, toujours plus de musiciens et de fans étaient à la recherche d’alternatives à la musique grand public traditionnelle.
 
