@@ -15,6 +15,7 @@ Navigation|
 ## Origines du concept
  
  ![Sun Records](https://zupimages.net/up/21/43/89ec.png)
+ 
  *Logo du label Sun Records, 1952*
 
 Le concept de musique indépendante est très vague. Cependant, on peut retracer ses origines à partir des **années 50 et 60** avec la création de labels indépendants tels que **Sun Records** de Sam Phillips ou encore **Motown Records** de Berry Gordy. Aujourd’hui ces productions ne sont pas considérées comme de la musique indépendante car cette dernière a évolué, et le simple fait d'être associé à un label indépendant ne suffit plus.
