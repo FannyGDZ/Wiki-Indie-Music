@@ -14,7 +14,7 @@ Navigation|
 
 ## Origines du concept
  
- ![Sun Records](https://zupimages.net/up/21/43/q4dl.jpg)
+ ![Sun Records](https://zupimages.net/up/21/43/89ec.png)
  *Logo du label Sun Records, 1952*
 
 Le concept de musique indépendante est très vague. Cependant, on peut retracer ses origines à partir des **années 50 et 60** avec la création de labels indépendants tels que **Sun Records** de Sam Phillips ou encore **Motown Records** de Berry Gordy. Aujourd’hui ces productions ne sont pas considérées comme de la musique indépendante car cette dernière a évolué, et le simple fait d'être associé à un label indépendant ne suffit plus.
@@ -23,13 +23,11 @@ En plus de cela, toute une myriade de petits groupes de « *garage rock* » voie
 C'est avec la musique alternative, le punk, la new wave et surtout l'ère du post-punk que nous allons réellement commencer à parler de musique indépendante.
  
 ## Explosion de la musique indé
- 
-La musique indé a toujours été difficile à cerner, notamment à cause de sa diversité.
 
 ![Spiral Scratch](https://zupimages.net/up/21/43/qhhn.jpg)
-*Vinyle de l'EP Spiral Scratch, 1977*
+*Couverture de l'EP Spiral Scratch, 1977*
 
-La sortie d’un certain EP (extended play) appelé « *Spiral Scratch* » en 1977 marquera à tout jamais les débuts de la musique punk, grand genre de la musique indépendante. Le groupe derrière cet EP, les **Buzzcocks**, n’avait pas les fonds nécessaires pour pouvoir promouvoir leur musique. Ils les ont donc collectés auprès de leurs familles et amis. Cela n’a pas empêché à ce disque de devenir un énorme succès, et la musique indépendante de se populariser.
+La musique indé a toujours été difficile à cerner, notamment à cause de sa diversité. La sortie d’un certain EP (extended play) appelé « *Spiral Scratch* » en 1977 marquera à tout jamais les débuts de la musique punk, grand genre de la musique indépendante. Le groupe derrière cet EP, les **Buzzcocks**, n’avait pas les fonds nécessaires pour pouvoir promouvoir leur musique. Ils les ont donc collectés auprès de leurs familles et amis. Cela n’a pas empêché à ce disque de devenir un énorme succès, et la musique indépendante de se populariser.
 Le fait d’avoir vendu cet EP chez un disquaire l’a rendu aussi accessible que les productions réalisées par de grands labels. Le simple concept de vendre de la musique indépendante a jeté les bases de ce qui allait arriver plus tard. C’est comme cela que beaucoup de producteurs de musique et artistes adopteront le concept de musique indépendante. Mais le plus important, c’est qu’ils avaient réussi à prouver qu’il était possible, en tant qu’artiste, d’avoir un contrôle total sur sa musique et ce, de la production jusqu’à la distribution.
 
 L’explosion de la musique indépendante s’est d’autant plus établie avec les mouvements post-punk et new wave au travers de musiques sorties à la fin des années 70 avec des labels indépendants du Royaume-Uni comme **Rough Trade** de Geoff Travis, **Factory Records** de Tony Wilson et bien d’autres, qui ont été fondés en 1978. Ces labels ont joué un rôle essentiel dans l’évolution de la musique indé.
