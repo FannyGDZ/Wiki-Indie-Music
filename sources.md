@@ -15,6 +15,4 @@ Navigation|
 * *Siachen Studios* : [https://siachenstudios.com/blog/what-is-indie-music/](https://siachenstudios.com/blog/what-is-indie-music/)
 * *Merriam Webster* : [https://www.merriam-webster.com/dictionary/alternative%20music](https://www.merriam-webster.com/dictionary/alternative%20music/)
 
-
-
     **Toutes les images, qu'elles soient des photos de groupes, logos de labels ou couvertures d'albums sont la propriété de leurs labels respectifs.**
