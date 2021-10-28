@@ -17,4 +17,4 @@ Navigation|
 
 
 
-    **Images : Toutes les images, qu'elles soient des photos de groupes, logos de labels ou couvertures d'albums sont la propriété de leurs labels respectifs.**
+    **Toutes les images, qu'elles soient des photos de groupes, logos de labels ou couvertures d'albums sont la propriété de leurs labels respectifs.**
